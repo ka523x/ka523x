@@ -8,7 +8,7 @@ Meu nome é Kauany Vitória
 
 ### Vocé entrar em contato comigo 📫
 
-kv3972921@gmail.com.br
+kv3972921@gmail.com
 
 @kau1910
 
